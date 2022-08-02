@@ -1,1 +1,0 @@
-# furkanayk0-
